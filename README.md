@@ -13,3 +13,5 @@ im cute and shy and im the queen haha
 tell octavia she is ugly/j and h
 
 bye guys :(
+
+![6ae75b3a-8c69-4c45-936f-cc73b028afe6](https://github.com/user-attachments/assets/26ceed2e-0244-4e3f-96ab-0f30468f5706)
